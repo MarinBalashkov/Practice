@@ -1,3 +1,3 @@
 # Practice
 Workout
-Contributers Mara &, baba gicka Pesho, gichka.
+Contributers Ma &, baba gicka Pesho, gichka.
